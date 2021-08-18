@@ -13,7 +13,7 @@ Hi, I'm Cub, a coder ig.
 - 🔭 I’m currently working on *nothing*
 - 🌱 I’m currently learning *code*
 - 👯 I’m looking to collaborate on *idk*
-- 💬 Ask me about anything on discord HeyImCub#0080
+- 💬 Ask me about anything on discord HeyImCub#0001
 
    
 

@@ -13,7 +13,7 @@ Hi, I'm Cub, a coder ig.
 
 
 - 💬 Ask me about anything on discord HeyImCub#1956
-
+- @  Also Contact me at heyimcub@gmail.com
    
 
 <!--- 

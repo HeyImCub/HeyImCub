@@ -12,7 +12,7 @@ Hi, I'm Cub, a coder ig.
 
 
 
-- 💬 Ask me about anything on discord HeyImCub#0001
+- 💬 Ask me about anything on discord HeyImCub#1956
 
    
 

@@ -8,11 +8,11 @@
 <br />
 <br />
 
-Hi, I'm Cub, a coder ig.
+Hi, I'm Cub.
 
 
 
-- 💬 Ask me about anything on discord HeyImCub#1956
+- 💬 Ask me about anything on discord HeyImCub
 - @  Also Contact me at heyimcub@gmail.com
    
 

@@ -1,16 +1,9 @@
-### Hi there, I'm Cub! 👋
-
-
-<a href="https://discord.gg/wSSvfrxbGA">
-  <img align="left" alt="HeyImCub's Discord" width="21px" src="https://raw.githubusercontent.com/anuraghazra/anuraghazra/master/assets/discord-round.svg" />
-</a>
+### Cale Brassfield (HeyImCub)
 
 <br />
 <br />
 
-Hi, I'm Cub.
-
-
+Hi, I'm Cale Brassfield. Online I am HeyImCub or Cub
 
 - 💬 Ask me about anything on discord HeyImCub
 - @  Also Contact me at heyimcub@gmail.com

@@ -3,7 +3,7 @@
 <br />
 <br />
 
-Hi, I'm Cale Brassfield. Online I am HeyImCub or Cub
+Hi, I'm Cale Brassfield.
 
 - 💬 Ask me about anything on discord HeyImCub
 - @  Also Contact me at heyimcub@gmail.com
